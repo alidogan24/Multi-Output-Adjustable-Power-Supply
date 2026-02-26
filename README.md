@@ -1,7 +1,7 @@
 # AMulti-Output-Adjustable-Power-Supply from ATX PSU
 
 YouTube Video:  
-[https://youtube.com/shorts/ajj-uTPO_J0]
+[https://youtube.com/shorts/ajj-uTPO_J0?feature=share]
 
 ---
 
